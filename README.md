@@ -1,4 +1,4 @@
-Hi 👋 My name is Abubakar Imam Abdulsalam
+Hi 👋 My name is Abdulsalam Abubakar Imam
 =========================================
 
 Web Developer
